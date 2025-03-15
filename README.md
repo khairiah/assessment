@@ -1,1 +1,0 @@
-Javascript pre-assessment answers
